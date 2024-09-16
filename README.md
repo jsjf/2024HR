@@ -55,9 +55,11 @@ Confira a resolução de cada questão, assistindo aos vídeos:
 
 <a href="https://www.tiktok.com/@fjsjunqueira/video/7299742586053479686" target="_blank">Questão 25</a>  
 
-*Referência:*
+
+*Referência:*  
+
 Material de apoio pedagógico para aprendizagens <a href="https://drive.google.com/file/d/1UE5O5qkKnyaww7geUWUbZs0FZNC_SIv7/view" target="_blank">MAPA SAEB 2023</a>  
-Acesso em 16 de setembro de 2024.
+Acesso em: 16 de setembro de 2024.
 
 
 
